@@ -1,1 +1,0 @@
-Buğrahan'ın Profil Kartı
